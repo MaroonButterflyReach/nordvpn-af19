@@ -1,4 +1,4 @@
-# 
+# advanced Kaspersky Total Security لجهاز الكمبيوتر منفذ هو أفضل Kaspersky Total Security لجهاز الكمبيوتر منفذ مع المسح السحابي و مضاد التجسس. آمن، موثوق، ومُحَسّن لأقصى أداء.
 
 
 
